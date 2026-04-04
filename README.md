@@ -58,7 +58,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: rihan1270428@gmail.com      
-- 💼 LinkedIn:linkedin.com/in/rohit-maurya-057866321
+- 💼 LinkedIn: www.linkedin.com/in/rohit-maurya-057866321/
 
 ---
 
