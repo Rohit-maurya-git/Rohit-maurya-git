@@ -57,8 +57,8 @@
 ---
 
 ## 📫 Connect With Me
-- 📧 Email: your-email@example.com
-- 💼 LinkedIn: (add your link)
+- 📧 Email: rihan1270428@gmail.com      
+- 💼 LinkedIn:linkedin.com/in/rohit-maurya-057866321
 
 ---
 
